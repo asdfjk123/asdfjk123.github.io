@@ -1,1 +1,1 @@
-# asdfjk123.github.io
+# min-imalism tech blog
